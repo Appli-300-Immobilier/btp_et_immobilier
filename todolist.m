@@ -4,11 +4,11 @@
 - **Company Name:** BTP et immobilier
 - **Directory:** btp_et_immobilier
 - **Address/Contact:** 
-  - Nous sommes sp�cialis�s pour la vente des terrains, lotissement , et construction
+  - Nous sommes spécialisés pour la vente des terrains, lotissement , et construction
   - 
-  - Page � Immobilier
+  - Page é Immobilier
   - 
-  - Yaound�, Cameroon
+  - Yaoundé, Cameroon
   - 
   - +237 6 94 88 49 25
   - 
